@@ -5,3 +5,6 @@
 \- He told that he can show some of them in a meet!
 
 \+ Cool! Let's do it.
+
+----
+# Update on 14 May: Hired 🎉🎉🎉
